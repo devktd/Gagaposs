@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Gagaposs
-- 💬 Discord, Gagapøss#1086
+- 💬 Discord, Gagaposs#1086
 
